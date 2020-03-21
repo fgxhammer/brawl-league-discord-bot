@@ -1,1 +1,1 @@
-### 🏆 Vöckla Brawler Discord Bot 🏆
+### 🏆🤖 Vöckla Brawler Discord Bot 🤖🏆
